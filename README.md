@@ -1,6 +1,5 @@
 - 👋 Yo im SLA
 - 👀 I’m interested in coding shit for fnf
-- 📫 Ma discord is SlaKKKK#7392
 - VS OURPLE GUY - MIDNIGHT
 - VS OURPLE GUY - MIDNIGHT
 - VS OURPLE GUY - MIDNIGHT
