@@ -1,5 +1,4 @@
 - 👋 Yo im SLA
-- 👀 I’m interested in coding shit for fnf
 - VS OURPLE GUY - MIDNIGHT
 - VS OURPLE GUY - MIDNIGHT
 - VS OURPLE GUY - MIDNIGHT
